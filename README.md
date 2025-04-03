@@ -21,3 +21,5 @@ Looking for a fun way to prank your friends or automate repetitive messaging? **
 SpamStorm is designed for fun and harmless pranks. **Please use it responsibly!** Overusing this tool on social media or messaging platforms **may result in being blocked or banned**. Be mindful of where and how you use it to keep things lighthearted and fun! 😇  
 
 🔥 Ready to cause a storm in the chat? Download SpamStorm now and start spamming like a pro! 🌪️💬
+
+For support: contact@skileralok422@gmail.com  
